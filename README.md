@@ -1,1 +1,0 @@
-# simo1906.github.io
